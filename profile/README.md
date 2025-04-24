@@ -36,5 +36,5 @@ Looking for a digital partner to bring your ideas to life?
 We offer free consultations and love collaborating on meaningful work.
 
 📩 Contact us at: [hello@cognion.lk](mailto:hello@cognion.lk)  
-📞 Call or WhatsApp: [+94 77 123 4567](tel:+94771234567)  
+📞 Call or WhatsApp: [+94 777 654 352](tel:+94777654352)  
 🌐 Website: [www.cognion.lk](https://www.cognion.lk)
